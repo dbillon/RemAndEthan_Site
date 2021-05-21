@@ -20,8 +20,6 @@
 
 ![](https://colourlex.com/wp-content/uploads/2021/02/peach-stone-black-painted-swatch-300x300.jpg.webp)
 
-### How your sites can be:
-
 ![](https://colourlex.com/wp-content/uploads/2021/02/peach-stone-black-painted-swatch-300x300.jpg.webp)
 
 ![](https://colourlex.com/wp-content/uploads/2021/02/peach-stone-black-painted-swatch-300x300.jpg.webp)
